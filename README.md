@@ -1,1 +1,1 @@
-# Wellcome to syedsibt
+# Welcome to Syed Sibt
